@@ -7,5 +7,7 @@
 -💞️ I’m looking to collaborate on nothing right now but i will do it in some months otr future
 
 -📫 How to reach me https://github.com/Software-engineering-codes
-Youtube - https://www.youtube.com/@rikharigamer8770
-Instagram - engineer_is_machine
+
+-Youtube - https://www.youtube.com/@rikharigamer8770
+
+-Instagram - engineer_is_machine
